@@ -1,0 +1,15 @@
+A stag's  
+skin's   
+nictitant flit  
+
+tries to unlatch a horsefly  
+it has attracted, but how  
+can mere earthquakes compete with bloodthirst's prod?  
+
+Just imagine the way waves  
+harangue the cliff's overhang  
+and the cliff face spits salt:  
+
+it is just the same way as  
+deershide tidally shivers all along  
+the flotsam ridges of its vertebrae.  
